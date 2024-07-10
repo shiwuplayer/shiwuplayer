@@ -7,7 +7,7 @@
 - ⚡ Fun fact: ...c t b
 i w cwkwoxiangninnizainalixxiangnidewenrounnishiwode
 <!---eeverything smaller than youggivemeyouall
-shiwuplayer/shiwuplayer is a ✨ special ✨ repository becausewewenroudeni its `README.md` (this file) appears on your GitHub profile.phuiyipianqianwweinizuoyiqie
+shiwuplayer/shiwuplayer is a ✨ special ✨ repository becausewewenroudeni its `README.md` (this file) appears on your GitHub profile.phuiyipianqianwweinizuoyiqieyouyinianouzhoubei
 You can click the Preview link to take a look at your changes.
 --->bueeverythinggoodforyounmmyheartgowithyou
 faini
